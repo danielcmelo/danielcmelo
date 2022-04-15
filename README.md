@@ -2,8 +2,8 @@
 
 🎓 - Cursando Engenharia de Software pela UNINTER <br>
 📚 - Estudando Inglês pela UNINTER<br>
-💻 - Ensino Médio Técnico pelo Colégio Guarulhos <br>
-✈ - Atualmente resido em Coimbra, Portugal <br><br>
+💻 - Ensino Médio Técnico em Informática pelo Colégio Guarulhos <br>
+✈ - Sou brasileiro. Atualmente resido em Coimbra, Portugal <br><br>
 
 ~ Life Is Good ~
 
