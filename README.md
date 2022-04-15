@@ -1,7 +1,9 @@
 ## Iaê, de boa  ✌
 
-🎓 - Cursando Engenharia de Software <br>
-📚 - Estudando Inglês <br><br>
+🎓 - Cursando Engenharia de Software pela UNINTER <br>
+📚 - Estudando Inglês pela UNINTER<br>
+💻 - Ensino Médio Técnico pelo Colégio Guarulhos <br>
+✈ - Atualmente resido em Coimbra, Portugal <br><br>
 
 ~ Life Is Good ~
 
